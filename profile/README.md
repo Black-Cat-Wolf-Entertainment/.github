@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+Welcome to Black Cat & Wolf Enterntainment! This is created and maintained by a couple who wants to create mods/addons for their favorite games, we hope you enjoy our creations and if you guys have any ideas go to our discord to let us know! :D
 <!--
 
 **Here are some ideas to get you started:**
